@@ -1,0 +1,1 @@
+# Amasty-Category-Resolution
